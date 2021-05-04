@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mokhtarrr
+- 👀 I’m interested in ML and ICT
+- 🌱 I’m currently learning ICT
+- 💞️ I’m looking for usefull cources and hints
+- 📫 How to reach me mohamedmokhtar.romdhani@supcom.tn
